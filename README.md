@@ -1,1 +1,0 @@
-# Prodigyinfo_tech_CS
